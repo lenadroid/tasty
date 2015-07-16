@@ -1,6 +1,10 @@
+[README Tasty Food List](README.md)
+
 Original Here: https://gist.github.com/lenadroid/abb3a9e0f1957e19589e
 
-Ingredients: 
+# Borscht
+
+**Ingredients:**
 
 2 stewpans - one is main = 5 litres, second is for beet
 
@@ -11,7 +15,6 @@ beet - 4 items of average size
 meat - a piece of pork without fat, size about 10x17x7 santimeters
 
 salt, sugar, spieces - required to create the taste, as much as you wish
-
 
 What to do with ingredients:
 
