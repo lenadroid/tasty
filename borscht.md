@@ -2,25 +2,25 @@
 
 Original Here: https://gist.github.com/lenadroid/abb3a9e0f1957e19589e
 
-# Borscht
+# Borshtch
 
 **Ingredients:**
 
-2 stewpans - one is main = 5 litres, second is for beet
+2 stewpans - one is main = 5 liters, second is for beet
 
 potatoes - 12 items of average size, neither big nor small
 
 beet - 4 items of average size
 
-meat - a piece of pork without fat, size about 10x17x7 santimeters
+meat - a piece of pork without fat, size about 10x17x7 centimeters
 
-salt, sugar, spieces - required to create the taste, as much as you wish
+salt, sugar, spices - required to create the taste, as much as you wish
 
 What to do with ingredients:
 
-1. Take the meat. Take the sharp knife. Cut the meat to pieces around 4x2x1 santimeters.
+1. Take the meat. Take the sharp knife. Cut the meat to pieces around 4x2x1 centimeters.
 
-2. Take the stewpan for beet, not 5 litres, and boil the water there, use the biggest fire.
+2. Take the stewpan for beet, not 5 liters, and boil the water there, use the biggest fire.
 
 3. Throw the beet, clean but with peel into boiled water.
 Don't add any spieces. 
@@ -39,7 +39,7 @@ It will take nearly 1,5 hour for meet to be ready.
 
 4. Right after you have thrown the meat there is very important step. 
 You should create the taste of the whole Borshtch now. 
-Add salt, sugar and spieces as you wish. 
+Add salt, sugar and spices as you wish. 
 Don't forget to taste the water at the end to check it's tasty or needs corrections
 
 5. After you are done with putting meat to the hott water and set the timer to 1,5 hours - peel potatoes.
@@ -61,12 +61,11 @@ Wait until potatoes becomes ready
 
 
 I always start with beet first
-I leave it cookibg with 3 hours timer
+I leave it cooking with 3 hours timer
 In parallel I do meat
 All in all ideally when the time of cooking meat is an hour and a half - beet should be already
 I mean ready for throwing to the stewpan of meet
 So it should be cut.
 The same for potatoes
 
-After all, add the spoon of sour cream to your plate of borshtch.
-
+After all, add the spoon of sour cream to your plate of Borshtch.
