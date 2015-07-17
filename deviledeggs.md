@@ -4,10 +4,6 @@
 
 **Ingredients**
 
-Print Recipe
-Email
-Save Recipe
-Add to Shopping List
 12 large eggs $
 1/4 cup mayonnaise $
 1/3 cup finely chopped smoked pork
