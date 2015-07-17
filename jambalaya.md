@@ -4,10 +4,6 @@
 
 **Ingredients**
 
-Print Recipe
-Email
-Save Recipe
-Add to Shopping List
 1 tablespoon olive oil $
 1 cup chopped onion $
 1 cup chopped red bell pepper $
