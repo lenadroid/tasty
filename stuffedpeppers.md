@@ -15,9 +15,9 @@ Salt, sugar and spices if you'd like.
 
 **Cooking Process:**
 
-1. We need to be determined how many peppers we want to eat and how many of the would fit the container. 
+1. We need to be determined how many peppers we want to eat and how many of them would fit the container. 
 2. Wash the peppers and very very carefully extract the core and all seeds from the peppers, like [here] (http://hitrostidomashnie.ru/wp-content/uploads/2015/01/DSC04861_1-e1420460473504.jpg). 
-3. Now we would start to make a chopped meat (or ground meat) from the meat piece. We will use it to put it inside the peppers later. Make sure that amount of meat would be both not too much and not too little to fill the peppers. At the end of chopping we should get something like [this] (https://www.google.com/search?q=mincemeat&es_sm=93&biw=1242&bih=575&tbm=isch&source=lnms&sa=X&ved=0CAYQ_AUoAWoVChMI8ubby-28xwIVRzkUCh27cA5Y#tbm=isch&q=ground+meat).
+3. Now we would start to make a chopped meat (or ground meat) from the meat piece. We will use it to put it inside the peppers later. Make sure that amount of meat should be both not too much and not too little to fill the peppers. At the end of chopping we should get something like [this] (https://www.google.com/search?q=mincemeat&es_sm=93&biw=1242&bih=575&tbm=isch&source=lnms&sa=X&ved=0CAYQ_AUoAWoVChMI8ubby-28xwIVRzkUCh27cA5Y#tbm=isch&q=ground+meat).
 4. Now after we have the meat all chopped, we should open the rice pack and add some rice to the meat. Don't add too much rice, because after the dish is ready rice would grow in size after temperature processing. So add the rice just approximately.
 5. Add salt, sugar and spices.. all you want. Sometimes bell peppers are sweet, sometimes they are less sweet - then it would make sense to add a bit of sugar. Mix everything until it would be all even.
 6. Fill the peppers with what you've just made.
