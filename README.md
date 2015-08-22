@@ -8,3 +8,4 @@
 * [Jambalaya](jambalaya.md)
 * [Oklahoma Brisket Flat](oklahomaBrisketFlat.md)
 * [Peach Cobbler](peachcobbler.md)
+* [Stuffed peppers](stuffedpeppers.md)
